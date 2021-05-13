@@ -1,1 +1,1 @@
-# ICS222-Hype-Gang-Assignment-2.github.io
+# https://tanakaarthur-n.github.io/ICS222assignment2/
